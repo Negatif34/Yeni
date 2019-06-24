@@ -1,2 +1,1 @@
-# Yeni
-Yeni
+Kardeşim Şuan Yarrağı Yedin.
